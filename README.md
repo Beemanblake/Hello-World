@@ -11,3 +11,4 @@ Skittles are my favorite candy besides any real chocolate, no Palmer's bs.
 I have exactly a dozen guns which i clean and shoot skillfully.
 Semantics is actually fun for me, though not so much discussing them.
 Math is what makes me comfortable.
+Working with my hands and creating things is what makes life special.
